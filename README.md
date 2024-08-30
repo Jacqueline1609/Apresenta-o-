@@ -1,0 +1,1 @@
+Meu nome é Jaqueline, tenho 15 anos, faço aniversário dia 11/01/2009, sou capricorniana, minha matéria favorita na escola é historia, gostaria de trabalhar pra mim no futuro, pretendo fazer faculdade de psicologia, e me tronar a melhor psicóloga da vida. Minha comida favorita é strogonoff, não gosto muito de doce, sou chegada a mais salgado. 
